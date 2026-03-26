@@ -18,7 +18,7 @@ Arquitecto de soluciones con sólida experiencia en:
 - **Automatización** de procesos y **optimización de costos**
 - Enfoque integral en **seguridad**, **monitoreo** y **gestión de redes**
 
-🎓 **Estudios:** Cursando el décimo quinto trimestre en *Tecnología y Administración de las Telecomunicaciones*
+🎓 *Tecnología y Administración de las Telecomunicaciones*
 
 ---
 
